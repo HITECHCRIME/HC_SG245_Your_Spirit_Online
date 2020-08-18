@@ -18,11 +18,23 @@ Description.
 
 > **Music Video Credits:**
 
+https://www.youtube.com/watch?v=LNkVxzsy3mI
 
 ## Lyrics
 
 ```
+login to your lost soul
+what you saw veiled thru all the digits
+on ones and zeros made a living 
+fleeting egos in the space of cold
 
+all of em bonding, nest of rot 
+through the net, 
+botnets still casted programs
+onto self
+
+
+made it offline 
 
 ```
 
