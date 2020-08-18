@@ -24,17 +24,30 @@ https://www.youtube.com/watch?v=LNkVxzsy3mI
 
 ```
 login for your lost souls
-what you saw veiled thru the digits
+gotta tell me what you really saw 
+veiled thru the digits
 on ones and zeros made a living 
 fleeting egos in the space of cold
 
-all of em bonding, nest of rot 
-through the net, 
-botnets still casted programs
-onto self
+all of em bonded, nest of rot 
+through the net botnets 
+casted programs onto self
 
+talking to each other what is what
 
+made it offline
 made it offline 
+made it offline
+
+made it offline
+made it offline 
+made it offline
+
+1:08
+pass on the pad coz it says what is right
+dials on track, we are aligned
+keep us aflight 
+
 
 ```
 
