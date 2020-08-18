@@ -23,8 +23,8 @@ https://www.youtube.com/watch?v=LNkVxzsy3mI
 ## Lyrics
 
 ```
-login to your lost soul
-what you saw veiled thru all the digits
+login for your lost souls
+what you saw veiled thru the digits
 on ones and zeros made a living 
 fleeting egos in the space of cold
 
